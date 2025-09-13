@@ -1,2 +1,2 @@
-# Aprende-de-la-qu-mica-y-la-ciencia
+# Aprende-de-la-quimica-y-la-ciencia
 pagina sobre la quimica 
